@@ -1,0 +1,1 @@
+# ikinci_hafta_odev_mustafakurt
